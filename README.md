@@ -1,4 +1,0 @@
-ChaingunXD
-==========
-
-my personal webpage
